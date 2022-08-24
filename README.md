@@ -12,3 +12,15 @@ practical-2 completed!![Screenshot (30)](https://user-images.githubusercontent.c
 
 
 ![image](https://user-images.githubusercontent.com/110403688/186489841-684f2713-f4a7-49b2-8a16-c50b312dd73e.png)
+
+final
+
+![Screenshot 2022-08-24 232412](https://user-images.githubusercontent.com/110403688/186493707-dfb1847a-c379-4938-a943-b64f03616745.png)
+![Screenshot 2022-08-24 232447](https://user-images.githubusercontent.com/110403688/186493727-52a61529-a51a-4b7e-88f5-b5af881b9c2d.png)
+
+![Screenshot 2022-08-24 232532](https://user-images.githubusercontent.com/110403688/186493738-1a65479d-5ae8-457d-a9f0-4aff4d7d0f21.png)
+![Screenshot_20220824_232924](https://user-images.githubusercontent.com/110403688/186493811-522ac807-cbb5-46dc-a6f7-a2e9167bced8.png)
+![Screenshot_20220824_232951](https://user-images.githubusercontent.com/110403688/186493821-923d6ec6-dbf5-4eb5-af9f-e2298d9ebe4b.png)
+
+![Screenshot 2022-08-24 232603](https://user-images.githubusercontent.com/110403688/186493748-d0bc68ea-13a9-48a9-86d1-18ba2af0884e.png)
+![Screenshot (33)](https://user-images.githubusercontent.com/110403688/186493758-d664ff20-1ad8-4da3-a914-a37daf67e604.png)
