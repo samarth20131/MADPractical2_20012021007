@@ -10,3 +10,5 @@ practical-2 completed!![Screenshot (30)](https://user-images.githubusercontent.c
 
 ![image](https://user-images.githubusercontent.com/110403688/186487200-0b9c0586-4dac-48c9-a9da-dc9e09ea01af.png)
 
+
+![image](https://user-images.githubusercontent.com/110403688/186489841-684f2713-f4a7-49b2-8a16-c50b312dd73e.png)
