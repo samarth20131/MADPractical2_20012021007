@@ -4,6 +4,8 @@ practical-2 completed!![Screenshot (30)](https://user-images.githubusercontent.c
 ![image](https://user-images.githubusercontent.com/110403688/186487470-0dd2b3af-d799-438d-9e53-68acc4ad3183.png)
 ![image](https://user-images.githubusercontent.com/110403688/186486903-ebddd3b1-72fa-4558-8b17-cbca9fd9b5ba.png)
 ![image](https://user-images.githubusercontent.com/110403688/186487588-0f0ff034-ca74-4603-ad1d-1e71075e4e8d.png)
+![image](https://user-images.githubusercontent.com/110403688/186487744-ca9b7076-79bd-4741-ab57-7891cee7efed.png)
+![image](https://user-images.githubusercontent.com/110403688/186487756-1ab03cf7-c7a2-40d9-8a08-3674379dd73d.png)
 
 ![image](https://user-images.githubusercontent.com/110403688/186487200-0b9c0586-4dac-48c9-a9da-dc9e09ea01af.png)
 
